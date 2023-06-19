@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **jeevitha.madhi007@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1qM29x1wEgH_yhbuF2qT_XDkEjIDsBHub/view?usp=share_link](https://drive.google.com/file/d/1qM29x1wEgH_yhbuF2qT_XDkEjIDsBHub/view?usp=share_link)
+- 📄 Know about my experiences [[https://drive.google.com/file/d/1qM29x1wEgH_yhbuF2qT_XDkEjIDsBHub/view?usp=share_link](https://drive.google.com/file/d/18bn98lgiZJQ5EztwMi_r-IbcBJHJfjRD/view?usp=sharing)](https://drive.google.com/file/d/1qM29x1wEgH_yhbuF2qT_XDkEjIDsBHub/view?usp=share_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
